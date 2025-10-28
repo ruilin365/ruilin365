@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ruilin365
-- 👀 I’m interested in FPV
+- 👀 I’m interested in Video games
 - 🌱 I’m currently learning python
 - 📫 How to reach me Bilibili @Ruilin365 https://space.bilibili.com/621947874
 
